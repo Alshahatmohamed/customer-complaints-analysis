@@ -83,7 +83,7 @@ Optional note: Replace this filename with your actual poster name if different)
 🧑‍💻 Author
 
 Mohamed Alshahat
-Freelance Data Analyst | Open to remote roles
+ Data Analyst | Open to remote roles
 LinkedIn Profile: https://www.linkedin.com/in/mohamed-alshahat-8754992a4?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BhAqzQHitQs6ZMvGAdY9v1Q%3D%3D
 
 ⸻
